@@ -137,6 +137,5 @@ Open to Employer Sponsorship (Subclass 482) | Skilled PR Pathway (189/190)
 
 If you'd like to collaborate, connect, feel free to reach out!  
 📧 chandralekha.r.1999@gmail.com  
-🔗 [LinkedIn](https://www.linkedin.com/in/chandra-lekha-426197360/)
 
 ---
